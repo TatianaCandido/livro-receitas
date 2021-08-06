@@ -1,1 +1,1 @@
-stronof
+stronof de frango
